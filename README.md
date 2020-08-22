@@ -6,11 +6,15 @@
 
 ![](https://github.com/nondejus/hollandse-linkse-kerk/blob/master/unnamed%20(2).jpg)
 
+martin luther
 https://en.m.wikipedia.org/wiki/Martin_Luther
 
+theo van gogh
 https://en.m.wikipedia.org/wiki/Theo_van_Gogh_(film_director)
 
+medea
 https://nl.m.wikipedia.org/wiki/Medea_(televisieserie)
 
+publieke omroep
 https://nl.m.wikipedia.org/wiki/Geschiedenis_van_de_Nederlandse_publieke_omroep
 
