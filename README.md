@@ -18,6 +18,6 @@ https://nl.m.wikipedia.org/wiki/Medea_(televisieserie)
 hit me
 https://m.youtube.com/watch?v=tsUhhQokfVI
 
-publieke omroep
+publieke omroep minnie.omroep.nl
 https://nl.m.wikipedia.org/wiki/Geschiedenis_van_de_Nederlandse_publieke_omroep
 
